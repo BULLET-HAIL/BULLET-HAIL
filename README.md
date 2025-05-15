@@ -1,3 +1,3 @@
-![](https://komarev.com/ghpvc/?username=velvviy&label=❀&color=AC2C13)
+![](https://komarev.com/ghpvc/?username=velvviy&label=❀&color=cf84a1)
 
-![1701b9f0e0707b68eefc366f21daf206](https://github.com/user-attachments/assets/86ed0ab7-70af-473a-a2cf-b8cf59121d34)
+![4a96d2255f89a03034463acc8f9a09e1](https://github.com/user-attachments/assets/4860b83d-110b-4c75-9117-2f041459d31b)
